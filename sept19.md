@@ -1,0 +1,51 @@
+# 9/16
+## Post-1948 Immigration
+- 1948 - Declaration of State of Israel, mass immigration
+	- Open to Jewish Immigration --> Demand of Zionist movement
+		- If British declared Jewish Immigration, declaration would not have happened earlier
+		- Palestine became controversial
+		- Importance to Zionist: Jews in diaspora faced historical crisis --> Holocaust, difficult living conditions in Europe
+			- Asylum necessary
+			- Jews looked for alternative
+		- Free entry of Jews from anywhere
+		- Non-selective policy --> Old and sick welcome
+	- 3 year period, Jewish population doubled
+		- Economy not capable of accepting immigrants
+	- Opened doors to Jews in need --> Israel: Only state to accept holocaust survivors
+		- Survivors of Holocaust
+		- Jews in countries which allied itself with Germany and Axis powers
+		- Jews in Iraq --> Iraq defended Palestinian Arabs but angry at Jews, awks
+			- Integrated with Iraqi life, spoke Arabic, Zionism did not infiltrate Iraqi Jews, some Iraqi-Jews were affluent 
+			- Jews leave Iraq illegally
+			- Iraq government: Population exchange 
+				- Iraq: Palestinian Refugees, Israel: Jews in Israel, Iraq takes Jewish property
+				- Result: Kicked Jews out, got property, never took Palestinian refugees
+		- Vichy-France hurt relations with Jews and French, Nazi presence hurt it further, Decolonization
+		- Decolonization
+			- Local nationalism thrived
+			- Local minorities thrived
+		- Decolonization, WW2, Arab-Israeli Conflict --> Affected the Jews
+			- Some willing to move, others only option
+			- Posed problems within the economy
+- Economy collapsing 1951
+	- Restricted immigration and selective immigration --> Idealogical debates
+	- Selective: Young and healthy, older and sick must wait
+- 1955, better economy --> More generous immigration policy
+- New Jews were different from Jews pre-1948 
+	- Jewish struggle --> Biblical sense
+	- Less secular
+	- Mass-immigration changed the ethos of country, radically changing nature of state
+	- Restrictive immigration laws were though to be a racist policy
+	- Too many Jews in urban areas --> Resulted in developing towns (really shitty towns)
+		- Arab housing had to be recycled --> Taken by Jewish-Europeans
+		- Ma'abarot --> Symbol of disadvantaged and slums of Israel
+			- Last Jews lived in refugee camps 
+			- 17% of the population 
+			- Basis of development towns
+	- Idealogy of Immigration: Not sustainable
+	- Economy did not totally collapse thanks to money from British --> No foreign currency
+	- Most Jews considered it a step-up except German-Jews and Iraqi-Jews
+- Melting pot policy
+	- All immigrants had to agree with the Israeli-Jewish culture
+	- Foreigners had to hide their foreigness and previous cultural identity
+	- Jewish government wanted to create an Israeli identity
