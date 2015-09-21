@@ -1,0 +1,51 @@
+# 9/21
+## Immigration Policy
+- Not meant to exclude Jews
+- Flow or number of people had to change
+- Things become regulated
+- Free immigration
+- Law of Return
+	- Right of Jews from anywhere to live in Israel
+	- Symbolic claim: Ability to claim a home
+	- Not: Palestinian claim, nationality claim, not a citizenship law
+	- Problem: Giving right of return to Jews, but did not determine the definition of a Jew
+	- 2 ways to be Jewish:
+		1. Born of a Jewish mother
+		2. Undergo a process of conversion - Does not look for converts
+			- Different per kind of Jewish
+	- Change in 1970 - Possible migration of Jews from Sovient Union
+		- Did not adopt Nuremburg Jews --> Opposite
+		- 1/4 Jewish --> Entitled to refuge in Israel
+		- Russian Orthodox Church reopened
+	- Tension between Rabbitical Courts and Civil Courts
+	- National ideas vs. Law of Return conflict
+		- Difficult to define the defintion of a Jew
+		- Groups of Jews struggled to have their definition of "Jew" become defined
+		- Criminals become problematic
+- Defining a Jewish and Democratic State 
+	- Millet System - Started during Ottoman Empire, carried during British rule
+		- Government protection for religious
+		- Civil laws passed to religious community
+		- No intermarriage
+		- Convenient to Israeli government --> Gave control to Rabbis
+- Secular Zionists and religious parties agreeement
+	- Status Quo: Relationships will now will remain in future, no radical changes
+	- Observe Jewish Sabbath
+	- State government serve Kosher food
+	- Rabbitical control over personal control remains
+- Jewish state
+	- Has a difficult time following some Biblical laws for State purposes
+	- Have to work with some Israeli-Arabs or non-Jews
+- Rabbinet
+	- Government makes them in charge of determining Jewish laws
+	- Brings up various issues: 
+		- Role of the Rabbi
+			- Lack of religious people so some do not recognize Rabbinet
+			- Extremely strict with Jewish laws
+			- Conflict between State and Religion
+		- Government listens to them too much
+	- Backs the Ultra-Orthodox which the rest of the population can consider problematic
+- Religious & Civil in Israel
+	- Israel: Attempt to combine religious laws with civil rights
+	- Possible combination, but not always smooth
+	- Possible separation due to young seculars but Ultra-Orthodox may interfere
