@@ -1,0 +1,54 @@
+# 10/7
+### Post-Holocaust
+- Question: How come the Jews didn't fight back?
+- Israelis: Holocaust proof of Zionist attitude
+	- Life for Jews outside of Israel is bad
+	- Holocaust survivors: Were told to keep quiet, no one talked about it
+- Reszo Kastner's trial
+	- Accused by Malkiel Gruenwald:	Relationship with Becher
+	- Trial of public opinion
+	- Samuel Tamir: Lawyer --> Turned into a career-making case
+	- Judge Halevi
+	- Kastner denied helping Becher, but Tamir defies that, Halevi turns against him
+	- Halevi: Kastner sold soul to devil
+	- Kastner won, got 1 penny
+	- Appeal: Jan 1957
+		- Supreme Court: Kastner is a hero, was mistreated. Gruenwald fined (Jan 1958)
+		- But Kastner already assasinated by left-wings --> March 1957
+- Question: Had the Zionists done enough to save Jews in Europe?
+- Historians agreed the Kastner did what had to be done
+- Eichmann found by Mossad (Israel Secret Service)
+	- Eichmann in Argentina
+	- Brought to Israel to stand trial
+	- Purpose of trial: Record evidence
+	- Problem:
+		- Argentina was pissed because they smuggled Eichmann out of the country
+		- Israel: Explain why Argentina was hunting him
+- Eichmann's trial
+	- Eichmann's defense: I had no choice
+	- Witness: 100 Holocaust survivors --> Public had to hear their stories
+	- Trial: Learning for the public
+	- Start: April 1961, End: Dec 1961
+	- Result: Eichmann to be sent to death --> Only time Israel used death penalty
+- Reparations from Germany
+	- Victor: Gets to say who pays for reparations
+	- Indemnification: Personal compensation for sufferings
+	- Countries that get $$$ are the countries that Germany occupied
+	- Question: What about the Jews?
+	- Germany did not want to become accountable for Holocaust
+		- Israel did not talk to them
+		- Ignored by the rest of the world
+	- Adneuer's Admission
+		- Adneur: German chancellor
+		- Germany did something terrible in the name of the German people
+		- Germany wanted to pay for their deeds
+	- Germany's Problem: No $$$
+		- Paid Israel in German industrial goods for 12 years
+		- Diaspora organization also German industrial goods, but will not do anything with German industrial goods
+			- Israel takes share for Diaspora organization and Israel to pay Diaspora organization $$
+			- Problem: Israel has no foreign currency
+			- Result: Creative accounting, DO donate to Israel, and Israel returns that money to be made in a NYC bank
+- Malben
+- Wassenaar
+	- Adenauer: GERM X ISR must be the first post-Nazi deal after WW2
+	- Significant symbolically
