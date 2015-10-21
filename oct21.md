@@ -1,0 +1,89 @@
+# 10/21
+## Terms
+- Ba't Galim
+	- Ship
+	- 1950: Egypt condemned
+- Lavon Affair
+	- Failed Israeli intelligence to embarrass Egyptian gov't
+- Shimon Peres & Moshe Dayan
+	- Close to Ben-Gurion
+	- Peres: Civilian office
+	- Dayan: #1 in army
+- Mitla Pass and Sharm El-Sheikh
+	- Geographic points
+
+## Suez Canal probs
+- Egypt
+	- Pan-Arab ideology
+- Algerian rebel forces get support from Egypt
+- Egypt occupies Gaza
+	- Block off Sharm El-Sheik
+	- Not allowing Israelis to develop land
+- Infiltrations become serious
+- Israeli raids directed against military in Gaza
+- Gaza signs arms deal with Czechoslovakia
+- Gaza associates self with communist
+- 1955: Soviets in Middle East
+- Problem: Arms block with Arabs and Israelis
+	- Israel did not have weapons needed
+	- Israel finds supplier in France
+	- Beginning of arms race
+- Arms race
+	- Egypt winning and France and Israel think of military attack
+	- Egypt kicks British out of Suez
+	- Israel-France and British-France
+		- France wants Nasa end
+		- British wants Suez Canal
+		- Israel wants Egypt to go away
+		- British not want seen with Israel
+		- British good relations with Jordan
+		- France convinces British to go against Nasa
+	- Meeting in Sevres, outside of Paris
+		- Israel organize act against Egypt
+		- IS to seize desert and attack Sanai
+- Plan execution
+	- Problem: Egypt had fighter pilots, Israel did not
+	- Solution: France protect Israeli airspace
+	- First time Israel forces combat
+	- Israel overwhelms Egypt and captures Sharm El-Sheik and Suez Canal too soon
+	-	Israel was controlling canal
+		- Nasa pulls army back
+		- Everyone realized that it was a scheme
+	- America and Russia intervenes
+		- America is furious at Israel
+		- Eisenhower orders fighting to stop
+		- UN calls for ceasefire
+		- Russia threatens to use nuclear weapons
+	- Nasa not humiliated because everyone ganged up against him, became hero
+	- Israel withdrew from Sanai
+- Israel's achievements from war
+	- Blockade and infiltrations ends
+	- UN to place forces on borders
+	- Israel gets security from Egyptian threat
+- Casus Belli - Justified reason for going to war
+	- If Egyptians made a blockade, then Israel could go to war
+	- Israel's cause recognized as Casus Belli
+- Israel, France, and Britain relation
+	- British
+		- British public: Furious and helps bring conservative government down
+		- British denies, only intervering
+		- Israel and France had copy of agreement
+		- Last gasp of Britain's imperial growth
+	- France
+		- Happy
+		- Stronger relations with Israel
+		- Continues to supply Israel with weapons
+		- If US didn't supply weapons, France did
+		- Nuclear program
+			- Israel could not keep getting into wars
+			- Nuclear weapons to prevent Arabs from conflicting with Israel
+			- France --> Nuclear reactor to Israel
+			- Israel --> Technologies developed for France
+			- People against it except Ben-Gurion and Peres
+	- Israel
+		- Country capable of defense
+		- Public opinion: Moshe Dayan and army become heroes
+		- Army idolized in Israeli society
+		- Increase in Arab hostility want to destroy Israel
+		- Fighting perpetuates hostility
+		- Israel chose to enter the war	
