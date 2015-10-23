@@ -1,6 +1,5 @@
 # 10/19
 - Topics: arab community in israel & land policy
-
 ## Arab community in Israel
 	- Youths:
 		- See selves as Palestinians and Israeli citizens
