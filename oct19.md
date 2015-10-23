@@ -2,31 +2,31 @@
 - Topics: arab community in israel & land policy
 
 ## Arab community in Israel
-	- Youths:
-		- See selves as Palestinians and Israeli citizens
-		- Some not happy
-		- Israeli-Palestinians
-		- Literature: Israeli-Arabs
-	- Confusion: Israeli policy to Arab minority
-	- 21% of Israel's population are Arab
-	- Two sectors Israeli population
-		- Orthodox Jewish population
-		- Israeli Arabs
-	- Divisions within Israel 
-		- Muslims (82%) && Christians (8-9%) && Druze (8.5-9%) && Bedouin
-			- Christian
-				- Christians declining
-			- Druze
-				-	Breakaway religion from mainstream Islam
-				- Secret religion
-				- Loyal to government
-				- Since 1948: Loyal to Jewish State
-			- Common language: Arabic
-				- Arabic accepted national language
-				- Israelis not bilingual
-			- Bedouin
-				- Nomads
-				- Desert environment
+- Youths:
+	- See selves as Palestinians and Israeli citizens
+	- Some not happy
+	- Israeli-Palestinians
+	- Literature: Israeli-Arabs
+- Confusion: Israeli policy to Arab minority
+- 21% of Israel's population are Arab
+- Two sectors Israeli population
+	- Orthodox Jewish population
+	- Israeli Arabs
+- Divisions within Israel 
+	- Muslims (82%) && Christians (8-9%) && Druze (8.5-9%) && Bedouin
+		- Christian
+			- Christians declining
+		- Druze
+			-	Breakaway religion from mainstream Islam
+			- Secret religion
+			- Loyal to government
+			- Since 1948: Loyal to Jewish State
+		- Common language: Arabic
+			- Arabic accepted national language
+			- Israelis not bilingual
+		- Bedouin
+			- Nomads
+			- Desert environment
 
 ## Israeli Policy towards Arabs
 - Majority dominates minority
