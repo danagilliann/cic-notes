@@ -32,12 +32,12 @@
 	- Egypt winning and France and Israel think of military attack
 	- Egypt kicks British out of Suez
 	- Israel-France and British-France
-		- France wants Nasa end
+		- France wants Nassar end
 		- British wants Suez Canal
 		- Israel wants Egypt to go away
 		- British not want seen with Israel
 		- British good relations with Jordan
-		- France convinces British to go against Nasa
+		- France convinces British to go against Nassar
 	- Meeting in Sevres, outside of Paris
 		- Israel organize act against Egypt
 		- IS to seize desert and attack Sanai
@@ -47,14 +47,14 @@
 	- First time Israel forces combat
 	- Israel overwhelms Egypt and captures Sharm El-Sheik and Suez Canal too soon
 	-	Israel was controlling canal
-		- Nasa pulls army back
+		- Nassar pulls army back
 		- Everyone realized that it was a scheme
 	- America and Russia intervenes
 		- America is furious at Israel
 		- Eisenhower orders fighting to stop
 		- UN calls for ceasefire
 		- Russia threatens to use nuclear weapons
-	- Nasa not humiliated because everyone ganged up against him, became hero
+	- Nassar not humiliated because everyone ganged up against him, became hero
 	- Israel withdrew from Sanai
 - Israel's achievements from war
 	- Blockade and infiltrations ends
