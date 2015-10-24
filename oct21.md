@@ -40,7 +40,7 @@
 		- France convinces British to go against Nassar
 	- Meeting in Sevres, outside of Paris
 		- Israel organize act against Egypt
-		- IS to seize desert and attack Sanai
+		- IS to seize desert and attack Sinai
 - Plan execution
 	- Problem: Egypt had fighter pilots, Israel did not
 	- Solution: France protect Israeli airspace
@@ -55,7 +55,7 @@
 		- UN calls for ceasefire
 		- Russia threatens to use nuclear weapons
 	- Nassar not humiliated because everyone ganged up against him, became hero
-	- Israel withdrew from Sanai
+	- Israel withdrew from Sinai
 - Israel's achievements from war
 	- Blockade and infiltrations ends
 	- UN to place forces on borders
