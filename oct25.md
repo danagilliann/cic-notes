@@ -119,3 +119,20 @@
 			- Infiltration stops
 			- Guarantee from United States
 			- Casus Belli from Egypt if Egypt does blockade
+- 1958 Father Daniel
+	- Daniel, Christian clergy, born Jew
+	- Go to Israel based on LoR
+	- Denied, but gets Israeli citizenship
+- Benjamin Shalit
+	- Married non-Jewish woman
+	- Wanted children to be Jewish
+- Tripartite Declaration 1950
+	- US, Britain, and France stop arming Middle East
+- German Reparations
+	- 15 countries Germany needed to give money to 
+	- Jews had to be compensated: How? No organization.
+	- Claims Conference --> Jewish claims against Germany outside of Diaspora
+	- Israel did not want to do direct negotiations with Germany: Had to
+	- Israel wanted official acknowledgment of guilt of Germany
+		- Adenaur statement good enough
+		- Talks go through	
