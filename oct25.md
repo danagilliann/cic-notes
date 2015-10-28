@@ -2,7 +2,7 @@
 - 1917
 - End of WW1
 	- Britain agreements --> Jews && Arabs
-		- Arab State in exchange for Arab suppor
+		- Arab State in exchange for Arab support
 		- Balfour separation: Jewish national home
 	- France and GB --> Secret agreement, split Middle-East
 		- GB: Mandate over Palestine
