@@ -1,0 +1,134 @@
+# 11/2
+### Six Day War
+- Effects of Suez War
+	- France ally of Israel
+	- UN patrols
+	- US aware of aggression in Arab World
+	- Nuclear program in Israel
+- Changes in Israel
+	- 1960 refugee camps
+		- Armed Palestinian struggle in Israel
+		- 1960-1964: Series of incidents of Palestinians grouping
+	- 1964: Palestine Liberation front
+	- 1965: Armed incursions into Israel and Israeli retaliations
+	- Development within Israel
+	- More water North than South
+		- National Water Carrier --> Bring water to country
+- National Water Carrier
+	- Problems with Syria
+	- Water clashes for engineering works in Israel
+	- Begins pumping June 1964
+	- 1966: Syrians try to divert Israel from streaming water from rivers
+	- April 1967: Aerial combat between Israel and Syria
+		- 6 Syrian jets shot down
+	- Israel raids
+		- Mass political protest in Jordan --> Against gov't and Nassar
+		- Public to Nassar: Nassar should take action against Israel
+			- Claimed Nassar was hiding behind UN
+- Soviet Union
+	- Allied with Arab States
+	- Humiliated technology --> France airjets shot down Soviet Union airjets
+	- Wanted to maintain credibility
+	- Report to Syria: Israel planning to invade Syria (Untrue report)
+- Soviet Report
+	- Israel to Syria: Untrue
+	- Diplomatic crisis
+- Egypt to get rid of UN forces
+	- Egypt moves forces to Sinai desert
+	- To defeat Egypt, Israel had mobilize army
+		- Problem: Taking out a huge chunk of the population, could not afford it
+	- May 1967
+		- Nassar mobilizes army
+		- Israel panics: Waiting period
+		- Israel only mobilized end of May
+		- Nassar demands withdrawal of UN forces (3000 forces)
+		- Nassar army hostage to peace
+		- UN agreed to withdraw forces
+			- Forces were Indian troupes
+			- Indian and Egyptians allied 
+			- May 21st
+		- Nassar wants to clash with Israel
+	- Nassar blockades the Straits of Tiran
+- Pre-Suez War Conditions
+	- Israel: Casus Belli
+	- AM: Will not take action against Nassar
+	- Israel may have to fight two-front war
+- Israel public
+	- Israel is threatened
+	- End of May: Israel mobilizes army
+- PM: Levi Eshkol
+	- Successor to BG
+	- 1963-1968
+	- Leader of Labor Party
+	- Unlike BG: Indecisive
+	- Gives up Minister of Defense to Moshe Dayan
+- Moshe Dayan
+	- Becomes Minister of Defense
+	- Reassures public opinion
+- Menachem Begin
+	- Now part of the gov't of Israel
+- US cannot force open Straits of Tiran --> US gives Israel green light
+- June 2: Declare war against Egypt to defend self
+- Israeli forces planning this for years
+	- Had to destroy Egyptian Airforce
+	- Israeli pilots and Israeli planes to fight
+- U Thant 
+	- Secretary General for UN
+	- Question to agree to removal of troupes
+- June 5: War breaks out
+	- Israel destroys 150 aircrafts day 1
+	- End of War: 450 of Arab airforces destroyed
+	- Egypt pushes back to Suez Canal, Israel follows Egypt
+	- Israel's problem: Cannot afford to fight a two-front war
+		- Israel to Jordan: Stay out of it
+		- Jordan signed agreement to Jordan
+	- Jordan starts attacking Jordan
+	- June 8
+		- Israel occupied West Bank and Suez Canal
+	- Golan Heights
+		- Israel did not want to engage in war because lack of people
+		- Important to Israel and Syria
+		- Close to Haifa and Damascus
+		- Strategically important
+		- Syria attacking Israel from Golan Heights
+	- Syria not attacking so far
+	- June 9
+		- Israel invades Golan Heights
+		- Controls Golan Heights, Suez Canal, West Bank
+	- Governing 1 million Palestinians
+	- Controlled water from Golan Heights
+	- World impressed, international kudos
+	- Controlled: British Mandated of Palestine & Biblical Israel
+		- Changes Israeli politics between Labor movement and national religious government
+		- Labor movement and national religious government
+- Religious Jews new dynamic
+	- Obligations and regulations can be applied to Israel's land
+	- After 200,000 years, Jews in control of all Land of Israel
+- Greater Israel Movement
+- Government to Arab States: Return territories (not all) in exchange for peace
+	- Israel did not want to return Arab Jerusalem
+	- Arabs and Israelis mix in Jerusalem
+- Arab World
+	- Second disaster like Nakba
+	- Consequences
+	- August 1967: Arab forces meet
+		- Israel to return ALL territories BEFORE negotiations
+		- Israel did not agree, territories as a card during negotiations
+- Israel: Desire for peace between Egypt and Syria, but not West Bank
+	- West Bank annexed by Jordan in 1952, but not recognized
+	- Maybe Israel did not have to return West Bank
+	- Could negotiate with Palestinians as opposed to Jordanians 
+		- US and UK did not approve
+		- Undermine Jordanian Kingdom
+	- Palestinians in West Bank did not agree with Israel --> Negotiate with Jordan
+	- PLO probs
+	- People telling Israel to keep territories
+- The Greater Israel Movement
+	- Right-winged, left-winged, religious groups
+	- Aug 1967: Creation of Greater Israel
+	- Fails to organize as a political group
+	- Starts a dialogue/discourse in polical society
+- Soviet Union to rearm Arab States
+	- Military advisers
+	- 14,000 Russian Military advisers in Egypt
+	- Egypt starts firing at Israel
