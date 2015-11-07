@@ -1,0 +1,120 @@
+# 11/4
+# Territories from Six Day Way
+- Israeli public: Settlements in territories
+- 20 year period of occupation (Dec 1987-first intifada)
+- Jerusalem policy
+	- Remove wall dividing Jerusalem
+	- Allow free movement btwn Jews and Palestinians
+	- Controversial policy
+		- Possibility of sniper fire
+		- Dangerous
+	- Successful
+		- Many people remembered Jerusalem as a united city
+		- Everyone mingled
+	- Repair East Jerusalem - Mostly Palestinian
+		- Different from Jordanian occupation
+		- Israel treated Jerusalem differently
+		- Originally told by Palestinians that Israel to do bad things, but did not happen
+	- 1970: Govt removes Palestinian restrictions in West Bank
+	- First 20 years
+		- Active Israeli and Palestinian life in West Bank
+		- Thriving economy in West Bank
+	- First year: Good relations
+	- Open bridges policy
+		- Palestinians looked to Arab world
+		- Israel reopened bridges from West Bank to Jordan
+		- Palestinians in West Bank could go to and from Arab World and Israel
+		- Promoted peaceful relations and atmosphere
+	- Minimal Israeli presence
+		- Employ Israelis for top positions, rest Palestinians
+		- Palestinians did not have to interact with Israelis
+		- Israel held elections for Palestinian officials --> Women could vote
+	- Better life for Israelis
+	- West Bank became dependent on Israel for food and supplies
+	- Still an occupation
+		- PLO guerrila warfare
+- Israeli public
+	- 72 leading public leaders signed documents, not govt policy
+	- Israeli response to three nos from Arab world
+	- Govt policy
+		- Indecision
+		- Ambivalent commitment for returning territories for peace
+	- Allon plan - Planned map of Israel
+		- Israel to not hold onto heavily populated Palestinian areas
+		- Israel populates desert area for protection
+		- Open passage to Jerusalem
+		- Great influence on Israeli policy, but never adopted
+- Israel never annexed Jerusalem, only extended Israel policy
+- Arabs: Return THE territories, British and UN (242): Return territories
+- Mafdal
+- Kook to students
+	- Redemption is here
+	- Messiah to appear because great things happening to land of Israel
+- Movement to separate Land of Israel
+	- Mercaz Harav
+	- Started in Yishiva
+	- Rabbi Kook and students start movement
+- Supporters of Annexation - Israel should hold West Bank
+- No man's land
+- April 1968
+	- Students of Kook to govt: Celebrate Passover in Hebron
+	- Hebron (Biblical significance)
+		- 1 of 4 Holy Jewish cities
+		- Jewish communities extremely present
+		- Arab riots and Jewish massacre (1939)
+		- Become center of Palestinian nationalism
+	- Students move into Hebron for 8 days
+	- Did not want to leave Hebron
+	- Government's mistake/compromise
+		- Give them land out of Hebron
+		- Kiryat Arba
+		- Settlement
+- Jewish settlements in Territories - Gish Etzion, Neve Yaakov, Atarot
+	- Originally unoccupied Arab territories
+	- Government official approved
+	- Not enough for Kook students
+		- Wanted areas of biblical significance
+- 1970: Gush Emonim - "Believers Block"
+	- Motivated by religious belief
+	- 1975: Confrontation with Israeli government
+	- Return to religious significance with heavy Arab population (Sebastia)
+- Sebastia
+	- No Jewish land
+	- People who settle: Gush Emonim 
+	- Rallies against settlement
+	- Nationalists vs. Peace People
+	- Gov't: Gush Emonim to disperse if find another place to settle
+- Problem: must find public land
+	- Israel can seize PRIVATE land for MILITARY use
+	- Many of the lands in Sebastia were privately owned
+- Arab ownership of land
+	- Ottoman Rule: Cultivated wasteland is person's property as long as land is cultivated (Mawwat)
+	- Mawwat land
+		- Certain distance from village
+		- Cannot hear a cock crow
+- Eilon Moreh: Jewish settlement
+	- Mawwat land became public land
+	- Establish Jewish settlement
+	- Happened during Nationalist Party in power
+- Settlements
+	- Not enough ideological Jews to settle
+	- Had to give reason to settle economical reasons
+	- Mortgages and cheap govt loans available for territories
+- Growth of settlements and new generation of Palestinians
+	- Palestinian youths developed own political ideologies
+	- Palestinian nationalist activities banned
+	- PLO forced out
+	- Palestinians begin uprising in Israel
+- First intifada
+	- Starts by local uprising --> Local phenomenon
+	- Israel govt could not identify source of intifada --> Starts in territories
+	- Lack weapons, protests, limited number of deaths
+	- More Palestinian deaths
+	- Govt tried to use force
+	- 1987-1992 
+	- End: Internal violence
+	- Consequence
+		- Free movement cancelled
+		- Borders close down
+		- Israeli labor market closes up for Palestinians
+		- Separation takes place
