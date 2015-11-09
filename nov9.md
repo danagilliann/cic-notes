@@ -1,0 +1,97 @@
+# 11/9
+
+### Terms
+- Bar Lev Line
+- Golda Meir
+
+### Effects of Six-Day Way
+- Israel hubris: Pride that their army was great
+- Israel demands from Arab States
+- Stalemate with Arab States
+	- Israel felt that they did not have to rush
+- Hostility in Suez Canal
+	- Egyptian forces did not accept peace
+- Egyptian rebuilt forces with SU
+	- Manning missles and flying planes
+- Sept 1970
+	- Nassar dies of heart attack
+	- Replaced by Anwar Sadat 
+		- Egyptian nationalist, expressed no sympathy to Israel
+		- Concerned that SU was turning Egypt to colonized country
+		- Wanted true Egyptian independence
+- Sadat's agreement with Israel
+	- Israel release all of Sinai
+	- Egypt sign non-belligerence pack with Israel, not peace agreement
+	- Israeli reaction
+		- Turned down offer
+		- Agree to release part of Sinai with peace agreement
+- Israel starts the Bar Lev Line
+- Sadat starts planning renewed war with Israel
+	- Plans with SU
+	- Good planning
+	- Difficult to plan surprise attack
+- Sadat's plan
+	- Build a rampat along Suez Canal
+	- Pretend to move forces up Canal as a military exercise (every year) --> Israel did not mobolize troupes 
+- October 6, 1973 (Yom Kippur)
+	- Yom Kippur - Nothing effing happens
+	- Military exercise not an exercise
+	- Egypt crosses canal and Israel unprepared
+	- Egypt overran and captured Bar Lev Line
+	- Egypt captured East Bank of Suez Canal
+	- Looked like Israel lose war
+	- Syrian forces attack Golan Heights
+		- Syrians temporarily stop
+		- Israel fights them up the Golan Heights
+	- Sadat could make a bargain with Israel
+	- Egyptian army is West and East, Israel on West and cut off third army
+		- US: Cannot destroy Egypt's third army
+	- US wanted to help Egypt
+		- Peace agreement
+		- Sadat expells SU 
+- Inquiry on why Israel failed
+	- Lead by Agranat
+	- Israel kept Golan Height, but lost control of Sanai and could not shut down Suez Canal
+	- Slap of Israeli self-confidence
+	- African and 3rd world countries break off ties with Israel
+- Govt officials resigned
+	- Moshe Dayan
+	- Golda Meir
+		- Last non-Israeli born govt
+		- Meir's generation was dying
+		- Replaced by Rabin
+- Rabin
+	- Unsuccessful Prime Minister
+	- Could not rescue reputation of Labor party
+	- Opened a US bank account, but did close it --> Breach of the law
+	- Breached the Sabbath
+- Menanchem Begin becomes PM
+	- Likud Party (formerly Herut)
+	- More Nationalist approach, only cared about West Bank
+- Results of October war
+	- Egyptians celebrate Sadat
+	- Israel's self-confidence deflated
+- Israel discovers plot to overthrow Sadat
+	- Israel informs Egyptians
+	- Israel and Egypt sends discrete messages, Sadat wants to make peace
+	- Begin sends ambassador to Morocco to ensure that Sadat wants to make peace
+	- Sadat goes to Jerusalem to talk to Knesset (1977)
+		- Electrifying moment
+		- Unreal
+		- Not best speech, but Egypt ready to make peace
+- Jimmy Carter interested in follow-up
+	- Camp David I talks
+		- Peace deal with Egypt
+		- Difficult negotiations, almost broke down
+		- America mediator
+	- Result: March 1979 - Israel-Egypt Peace agreement
+		- Full Israeli withdrawal from Sinai, including Yamit
+		- Once Israel withdraws, Egypt and Israel to exchange ambassadors
+		- Palestinians to get full autonomy in West Bank and Gaza, meaning to be worked out
+- Autonomy talked dragged on for 3 years
+	- Begin and govt did not want anything to happen
+	- Cover for peace treaty
+- Result of Egypt peace treaty with Israel
+	- Egypt expelled from Arab League
+	- Sadat assasinated
+
