@@ -1,0 +1,56 @@
+# 11/11
+
+### Jordan
+- Palestinian refugees in Jordan
+- Jordanian King faced protest from Jordanians
+- Jordan vs. Palestinians
+	- Fighting within refugee camps
+	- Syria threatened to intervene for Palestinians
+	- Israel mobilized to threaten to push Syria back
+	- Jordanians lose
+- Palestinians establish forces in Lebanon
+	- Palestinians try to attack Israel from South Lebanon
+	- Israel vs. Palestinians (12 years)
+- Ariel Sharon and Begin to plan incursion in Lebanon (1982)
+	- Push Palestinians max 40km from the border
+	- Turns into war
+	- Israel supports Christian forces
+	- Syrian forcdes assasinate Jamiya
+	- PLO expelled
+	- Invaded Beirut
+	- Sabra and Shatila massacre
+		- Israel did not stop Christian forces
+		- Sharon forced to resign after inquiry
+- Begin breaksdown 
+	- Resigns as PM (1983)
+- Results of Lebanon
+	- Israel faced criticism
+	- Hizbullah became an armed enemy against Israel
+	- Hizbullah: Islamist militant group and political party
+- Druze
+	- Conscripted in army
+	- Loyal to government wherever they live
+- Immigration
+	- From Palestinians
+- Israeli Arabs
+	- Voted: Communist or Satelite parties
+		- Satelite: Arabic version of local parties
+		- Satelite parties withered
+	- Non-Zionist parties
+- Disappearance of Communist parties --> Disappearance of SU
+	- Replaced by Nationalist parties
+- Radicalization: Arab thinking in Israel
+	- Oslo Agrements
+		- Oslo gave recognition to PLO
+	- Shift focus to changing Israeli society from identifying with Pal. struggle
+	- Palestinian youths: State for all citizens
+		- Not Jewish State
+		- State that does not identify with one sector of society
+		- End Zionist ideas
+	- More radical: Binational State
+	- Others: Autonomy in Israel
+	- Demand for Arab University
+		- Affects Israel's own sense of self-deception
+		- Affects Israel's cultural identity
+	- Vision Documents
+		- Demands from Arabs

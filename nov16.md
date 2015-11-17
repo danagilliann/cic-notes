@@ -1,0 +1,65 @@
+# 11/16
+
+## Kibbutz
+- Farm --> Ideological flagship of Zionist movement
+- Collectivist ethnic
+- Israel proud
+- Reflected Zionist enterprise
+- Now: Facing challenges
+	- Collectivist ethinics no longer do stuff
+- Farming originally not a Jewish activity
+- Kibbutzim
+	- Nationalism
+	- Many of the Kibbutzim helped Jews
+- Unique social experiment (50s)
+- Life in Kibbutz
+	- Living in community where everyone was equal
+	- Everyone shared tasks in community
+	- Some gender equality (Women also had to work, but men usually did not work in kitchen)
+	- Families lived differently
+	- Children grew up collectively: Accor. Most modern healthy way to bring up children
+	- People working for themselves and collective
+	- Agricultural
+- Flagship of Israeli society
+- 1948 - Founding of Israel
+	- 60,000 Kibbutz inhabitants (8.1% of Israel)
+- Moshav
+	- Collectivist community, but different
+	- Farmers shared capital goods --> Only thing shared
+- 1985
+	- 81,000 inhabitants Kibbutz (3.5%)
+	- 367 Moshavim 160,000 inhabitants
+- 2001
+	- 118,000 Kibbutz (1.7%)
+- Rapid growth and changing weight
+	- Mass immigration of North African Jews
+		- Not interested in Socialist Collectivism
+		- Private farming --> Moshav
+		- Kibbutz remained Ashkenazi
+	- Question of land
+		- 1950s: Kibbutz employs people
+		- Undermine ethos collectivist nature
+	- German reparations
+		- Ironic
+		- Many decided to leave because they got money from govt
+		- Me'uhad Kibbutz movement
+			- Centerist labor party
+		- Artzi Kibbutz movement 
+			- Mapam party
+		- Dati Kibbutz movement
+			- Religious party
+	- Industrialization
+		- Weakens socialism ideas in Kibbutz
+	- 1977 Likud
+		- Does not share Kibbutz ideas, Capitalism
+		- Enjoyed tax settlements and luxieries which Begin criticized
+		- Tax things made them less successful
+	- Inflation
+		- Shit economy
+		- Many Kibbutz lost money due to Capital spending
+	- Change in ideology
+		- Only 30% of agricultural production
+		- 8.9% industrial
+		- Youths did not agree with ideas of Kibbutz
+
+

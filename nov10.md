@@ -1,0 +1,37 @@
+# 11/10 (R)
+- Dowty
+	- Belligerent occupation in West Bank and Gaza
+		- Belligerent occupation: Occupation w/o Peace Treaty, short time
+		- Israel lasted a while
+	- Factors preventing Peace Treaty
+		- Who represents Palestinians?
+			- Israel did not want to recognize them
+			- PLO to officially represent them
+	- Improvement within territories
+		- Economically improved in Israel, not within occupied territories
+	- Israel: Civic Law, Territories: Military rule
+		- Different proceedures
+- Feige
+	- Settlement movement (Zionism and Religion)
+		- Hybrid religios-political movement
+			- Religious ideology but political goal
+			- Wanted to gain influence in other segments of society
+		- West Bank
+			- Biblical history
+			- Religiously sacred territory
+		- Most critical year: 1973
+			- Loss of Yom Kippur war allowed Gush Emonim to view as a learning lesson
+- Egypt + Israel Peace Treaty
+	- Begin to compromise
+		- Palestinians to have civil autonomy
+		- Under Israel sovereignty
+	- English vs. Hebrew
+		- English: West Bank, Jewish: Judea and Samaria
+- Begin
+	- Considered conservative
+	- 2nd term
+		- Lebanon War (1982)
+			- Israel's first war of choice
+			- Controversial, divides Israeli society
+			-
+
