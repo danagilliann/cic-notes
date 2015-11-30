@@ -1,0 +1,37 @@
+# 11/23
+
+## Water
+- Water important as fuck
+- On-going water shortage
+- Population growth to severely affect water shortage
+- Lack of sanitation
+- Ground water <-> Surface water
+- Water interacts with dirty things
+- Water does not respect political boundaries
+- Mountain Aquifier in Israel and West Bank
+  - Shared by West Bank, Syria, Israel, Jordan
+  - Both fresh and ground water
+  - Share set of rights to water
+- Water treaty
+  - Oslo 1
+  - Oslo 2 (Sept 1995)
+    - Water and sewage
+    - Article 40
+      - Israel to recognize Palestinian rights to water
+      - Develop additional water
+- Israel's rainfall
+  - Experiences the same amount of rain as London
+  - Different from other Palestinian/Arab States
+- Conserve water
+- Water laws in Israel
+  - Water in Israel is public property
+  - Must have license to collect water
+- Destructive water policy
+  - Caused by Yishuv
+ - Zionism
+  - Water towers symbol of Zionism
+  - Negev --> Frontier of Israel settlement
+- Portable water use decreases
+- Israel highest use of National Effluent Agriculture
+- Israel good at desalination
+- Palestinians hesitate to use Israeli technology
