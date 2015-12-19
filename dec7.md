@@ -2,11 +2,148 @@
 
 ## Relations between Israelis and Palestinians
 - Arabs in Israel
-  - Limited rights
+  - Palestinians in Israel are colonized by Jews
+  - Post-Nakba (1948) and agreements with neighboring Arab countries
+    - Palestinians stayed in the border, which were controlled by Jewish authorities
+    - (?) Palestinians were evacuated
+  - Limited rights despite Israeli citizenship
+    - Governed by national interest of Zionist State
+    - State focused more on bringing in other Jews
+  - Establishment of Jewish State meant Colonialism in homeland
   - Israel identifying as a Jewish State
-- Politics
-  - Israel attempted to colonize politics
-  - Mapai - Did not accept Arabs as leaders
-  - Movement to have Palestinians in office, shut down by government
+    - Palestinians perceived as obstacle to Zionist goals
+    - Palestinians' Israeli citizenship prevented Zionist from accomplishing 100% of their goals
+      - Pals given right to vote
+      - Israel stil implemented policies to limit Pal rights
+- Israel limiting Pal rights
+  - Pal homeland of Jewish ppl only
+  - Jewish faith
+  - Military rule in Palestinian areas from 1948-1966
+  - Pals isolated from Jewish and Arab world
+- Israel's justification
+  - National security, colonial sense
+- Political manipulations
+  - Goal: Limit Palestinian rights
+  - Israel attempted to colonize politics in addition to culture
+    - Mapai 
+      - Promote Jewish parties
+      - Did not accept Arabs as leaders
+      - Arab parties made illegal
+  - 1965: Arab activists movement
+    - Movement to have Palestinians in office
+    - Considered illegal, constantly shut down by government
+    - Attempt to participate in govt
+    - Attempts continued until 1984
+    - Supreme Court approved appeal
+  - Amendment to ban any party that negates the existence of the State of Israel as a state of Israel
+    - Amended in 2002
+    - Required to speak language
+    - Illegal to challenge the State to consider a bi-national state
+- Citizenship law guarantee Jewish majority
+  - Maintain Jewish Israel
+  - Illegal to challenge idea that Israel Jewish people
 - Equality Paradigm
-  - Highlighted discrimination in resource distribution
+  - Abolishment of military rule in 1966
+  - Palestinian could move without pass, move freely, more opportunities
+  - 1967 War
+    - Palestinian communities under Jewish control
+    - West Bank and Gaza occupation occupation strengthened Palestinian nationalism
+      - Window into the Arab world
+      - BUT made the right of Palestinians unsteady
+  - Realization status in Israel
+    - Free of military rule
+    - Wanted to achieve a Palestinian state in West Bank and Gaza
+  - Israel community highlighted discrimination in resource distribution
+    - Education, economic opportunities, govt distribution
+    - Israel govt wanted to hold onto the land of Palestinians
+  - Palestinian non-Zionist party became leader in opposing Israel and policies towards Palestinians
+    - Highlighted importance of land struggle in Israeli-Palestinian struggle
+    - Demands
+      - Championed the possibility of 2 states for 2 peoples
+      - Equality for Palestinians in Israel
+    - Discourse among Palestinians to adhere to Equality Paradigm w/o challenging current political framework
+    - Goal: Incorporate Arabs into current social structure
+  - Defined Palestinian struggles within society
+  - Struggled to reach land agreement
+  - Arab committee
+    - Established sub-committees for establishing Arabs in Israeli society (health, welfare, education, etc)
+    - Provide information for reaching Arab equality
+  - 1987: Equality group
+    - Advocacy equality
+    - NGOs established to advocate Arab equality
+    - Criticized by Arab communities
+      - De-emphasized Palestinian goals in favor of (?) class service
+      - Israel communist party de-emphasized (?) Palestinian nationalism
+  - Some thought equality in Jewish State impossible to achieve
+    - Jewish and Palestinian State contradictory to equality ideals
+  - Group attempts to understand goals of EP
+    - Spread national consciousness
+    - Extension of Palestinian National movement in Israel
+    - Did not accept UN Partition plan, Zionist movement as colonialism
+  - Mid-80s: Adherence to EP increased
+  - 1982: Supreme Court ruled movement legal and could run in Knesset election
+    - First legal party to declare solidarity with Palestinians
+    - More consistent in providing a Palestinian framework
+  - 80s-onwards: Given support
+    - Significant actor in Arab community
+    - Provided local services, fixed internal social issues instead of nature of State
+  - Dominant political idea among Palestinians: Achieve equality in accordance with State ideals
+    - Failed to reach agreement with Israeli authorities
+- Palestinian demand for state for all its citizens
+  - Oslo agreement in 1993 brought hope of two State solution
+    - Enormous impact to political Palestinian parties
+    - Validation for equality paradigm
+  - Yitzhak Rabin spoke openly about discrimination, usually denied
+  - If Oslo approved, Palestinians would be one with Israeli State
+  - Palestinian issues re State:
+    1. Meaning of equality and political implication
+    2. Collective right of Arab citizens in Israel
+    3. State identity
+  - New political party: National democratic alliance
+    - Center of political platform
+    - Political activists
+    - Arab intellectuals
+    - Questioned idea of Jewish State
+    - Demand for democratic citizenship for ALL citizens
+    - Arab community should be included in public space
+    - Encouraged by Arabs
+  - Debate: Jewish/Palestinian State contradictory
+    - Jews: Palestinian State threat to Jewish State
+    - Contradiction to Jewish interest came to be understood in Arab conscientious
+    - Discussion on unified Israel
+  - Palestinian struggle understood on a cultural level
+    - 05-07: Examine collective status of Palestinians in Israel
+    - Issued documents: Future Vision Documents
+      - Addresses rights Palestinians in Israel by acknowledging bi-national or multi-cultural state
+      - Jewish reaction
+        - Threatening bc docs referred to Israel as colonial state
+        - Jewish State could not be a democratic one
+    - New State for Palestinians
+      - Return of history (?)
+      - Growing awareness of Pals their citizenship rooted in events during Nakba
+      - Dismantlement of Palestine was in favor of Jews
+    - Nakba march or Return march
+      - First one took place May 1995
+      - Each year in different Pal village
+      - Remind Israelis different meaning of Nakba
+      - First collective acknowledgement of Nakba in public sphere
+      - Israeli privilage made known
+      - Surrounded by police forces
+      - Day of mourning
+      - Understood meaning of their history
+    - Understanding meaning of Palestinian citizenship
+      - Israel was mostly Jews only
+      - Awareness to colonism and relationship to Nakba
+      - Reduced Palestinian equality in Jewish society
+      - Two-State illusion gave alternative including 1 State for equality
+      - Israeli privilege gave awareness to (?) Hitler and colonial nature of Jewish State
+      - Arabs consistently treated as colonial projects
+    - October 2000: Failure of Camp David II talk
+      - Pals demonstration in West Bank and Gaza (Second Intifada)
+      - Pals killed by Israeli forces in Jerusalem and Israel
+      - IS-Pals demonstrated solidarity with Pals in West Bank and Gaza, went as citizens
+        - Israel treated them like other Pals
+        - IS-Pals killed and wounded
+        - Demanded investigation of IS-Pals killings, but State showed that IS-Citizenship provides no protection
+        - 2008: Govt closes investigation bc lack of evidence, contradicted commision reports
+      - Demonstrated inequality

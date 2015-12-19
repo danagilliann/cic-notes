@@ -1,0 +1,63 @@
+# 12/15
+
+- Jeopardy
+  - 1967 Outcomes
+    - Chain of fortification against Egypt: Bar-Lev line
+    - Palestinian land mass 3x larger than what it originally had
+    - Greater Israel Movement: Annexation of land captured
+    - 242: UN Security Council resolution passed post-Six Day War, land agreement
+    - Khartoum Resolution: Conference in Sudan, "3 no's" from Palestinians
+  - Rise of Israel's Radical Right
+    - Maale Adumim: Territorial threat to future Palestinian State,  second largest Jewish city in West Bank
+    - Tzui Yehuda Kook: Leader of Gush Emunim, believed Israel's conquest of Biblical Land prophesized Messiah's return
+    - Gush Emunim: Block of the Faithful, settling in territories
+  - Paths to Peace
+    - Oslo I accords signed on September 1993
+    - Tabah: January 2001 after breakdown of Camp David
+    - Wye River Memorandum: Netanyahu and Arafat signed to implement Oslo II and Hebron
+      - 1998
+      - Netanyahu eventually talks to Arafat
+      - More land to Palestinian authority
+      - Not as fruitful as US expected
+    - Baruch Goldstein: Killed 29 people in mosque at Tomb of Patriarchs in Hebron
+    - Madrid Conference: Conference post-Gulf War to deal with Palestinian prob and Arab states
+    - Camp David I: Agreements between Israel-Egypt
+  - Palestinian Struggles and Defeats
+    - Post-1982, PLO moved to Tunis, Tunisia
+    - Palestinian National Covenant: PLO adopted charter delineating its goal as organization
+    - Sabra & Shatila: Massacre of unarmed Palestinian refugees
+    - Arafat: Leader of all the things
+    - National Land Day or Yoam al-'Ar
+      - Commemorate of Palestinians killed by Israeli security
+    - Black September: Shitty things happen
+  - Upheaval and Beyond
+    - Agranat Commission: Commission to investigate Israel's failure of Yom Kippur War
+      - Blamed military
+      - Golda Meir steps down, Yitzhak Rabin assumes power
+    - Alon Plan: Israeli action in West Bank to create buffer against Iraq
+    - Small Pines/Little Erez Plan: Original (smaller) military action to open 1982 Lebanon war
+    - Kibbutz: Movement of Labor Parties but removed by Likud, currently being privatized
+    - Menachem Begin: Member of Likud, ended hegemony of Labor Party
+  - People
+    - Yigal Amir: Assassinated Yitzhak Rabin
+    - Yitzhak Shamir: Against Palestinian uprising, forced to participate in Madrid conference
+    - Bashir Gemayel: Lebanese pres, aided by Israeli forces, assassinated
+    - Hafez Asad: Military ruler of Syria (1971-2000), attempted to regain Golan Heights
+    - Sadat: Succeeds Nassar as President, Yom-Kippur war, signs agreement with Israel
+- Religion in Israel
+  - Status Quo (1947)
+    - Millet System
+    - Kosher
+    - Sabbath
+    - Education
+    - Democratic vs. Jewish State
+      - Future vision documents
+      - Declaration of Est.
+    - education
+  - Who is a Jew?
+    - LoR
+  - NRP
+  - Religious Zionist movement (Gush Emunim)
+  - Ultra-Orthodox
+    - GDP, economy, military, professional workforce <-> education
+  - Temple Mount
